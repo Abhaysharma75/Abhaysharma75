@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **abhaysharma98644@gmail.com** For Collaboration/Project or
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** abhaysharma98644@gmail.com
 - 😄 **Pronouns:** Abhay 
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** I Love Tech and Tech Loves Me
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/itz.abhay_here) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/linkedin.com/in/abhaysharma75) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:abhaysharma98644@gmail.com) 
